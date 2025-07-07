@@ -13,6 +13,6 @@
 我们的最大优势是无广告，没有弹窗或强制会员推送，让你专心享受影片。同时，数据加密保护隐私，完全匿名观看，无需注册。
 简单、安全、高清、无广告的观影体验，选择我们，轻松享受最佳日本AV影片。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/pl20250707/pl09 ）</span>
 
 
